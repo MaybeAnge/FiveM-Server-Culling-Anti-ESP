@@ -33,6 +33,8 @@ Cheaters pay a fortune for software that is completely useless the moment the se
 Maybe Ange,<br>
 ImNotCheating.
 
+Discord: https://discord.gg/yJmJEyMVjn
+
 <p align="center">
   <a href="https://imnotcheating.eu/">
     <img src="https://imnotcheating.eu/assets/images/ImNotCheatingLogo.png" alt="Vidéo YouTube" width="480"/>
