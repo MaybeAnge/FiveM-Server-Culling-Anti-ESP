@@ -30,10 +30,10 @@ On the test bench, the ESP is cut off: players behind walls no longer show up. T
 
 Cheaters pay a fortune for software that is completely useless the moment the server stops feeding it data. I didn’t just counter your ESP, I made it blind. Every cheat on the market, no matter what technology it uses, just got humiliated. 🔥
 
+Discord: https://discord.gg/yJmJEyMVjn
+
 Maybe Ange,<br>
 ImNotCheating.
-
-Discord: https://discord.gg/yJmJEyMVjn
 
 <p align="center">
   <a href="https://imnotcheating.eu/">
